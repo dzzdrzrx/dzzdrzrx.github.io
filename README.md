@@ -1,4 +1,8 @@
 # soon....
-I'm hosting right now and I'm wondering if there's some kind of bug or something and this is all I'm getting.
-I was like this in the morning and I'm fixing it now. I'm so stressed out.
-Just wait, refresh, 1000 people, 100 million, 1 trillions.
+hosting bugs or errs 
+
+# well what happens? man?
+I deleted the html file to update it, then added a new html file and waited, but it ended up like this;; I need to fix it now. 
+
+# free hosting?
+yes. no Moneys.
